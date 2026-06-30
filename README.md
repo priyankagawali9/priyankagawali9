@@ -98,8 +98,8 @@ I'm a passionate Android Developer with 7+ years of experience in designing and 
 
 ### 📫 How to reach me
 
-- 📧 Email: your-email@gmail.com
-- 💼 LinkedIn: https://linkedin.com/in/your-linkedin
+- 📧 Email: priyankac@gmail.com
+- 💼 LinkedIn: www.linkedin.com/in/priyanka-gawali-a34276177
 - 🌐 Portfolio: Coming Soon
 
 ---
